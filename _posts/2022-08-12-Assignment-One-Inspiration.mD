@@ -11,9 +11,9 @@ Before going into the project, I had to define and breakdown JavaScript terms to
 It took a while to think of how to start this assignment, so I took inspiration from two things:
 
 {% highlight ruby %}
-## My Inspirations:
-1. RMIT's values
-2. Clannad's dango animation
+My Inspirations:
+1. RMITs values
+2. Clannads dango animation
 {% endhighlight %}
 
 Not to be a nerd but looking at the assignment brief I was immediately drawn to the RMIT brand guide. I wanted to pick it apart and see what I could make out of the guide. I was particularly inspired by the colour palette, and appreciated how nice they harmonise with each other, all different yet mix and blend well together.
