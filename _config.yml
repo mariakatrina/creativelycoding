@@ -18,7 +18,7 @@
 # You can create any custom variable you would like, and they will be accessible
 # in the templates via {{ site.myvariable }}.
 
-title: Kat's Creatively Coding right now
+title: ma katrina engle
 email: s3919530@student.rmit.edu.au
 description: >- # this means to ignore newlines until "baseurl:"
   This is a digital space for Kat to code creatively.
