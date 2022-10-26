@@ -9,21 +9,23 @@ Before delving into what I want to focus on with my assignment, I want to explor
 
 The Oxford Dictionary defines a community as
 
-" a group of people living in the same place or having a particular characteristic in common "
+> a group of people living in the same place or having a particular characteristic in common
 
-But upon evaluation of myself and of what this means to others, a community is much richer than to being defined simply as a gathering of a collective group with similarities.
-But rather, communities are people. Individuals. Not the rhetoric, or the common traits and beliefs. 
+Upon evaluation of myself and of what this means to others, a community is much richer than to being defined simply as a gathering of a collective group with similarities, but rather, communities are people. Individuals. Not the rhetoric, or the common traits and beliefs. 
 
 Simply human beings, complex, but together who share a sense of belonging and interpersonal connection. My community of focus is one that has connected individuals for not one, but two things in which they love and believe in:
 
 1. Catholicism (and their faith)
 2. Music (Worship)
 
+
+# CFC: YOUTH FOR CHRIST
+
 ![YFC LOGO](https://cfcyouthforchrist.net/wp-content/uploads/2020/04/logo-trans-1.png)
 
 I aimed to highlight these two in my chosen community: CFC Youth For Christ (YFC). 
 
-Before delving into me exploration on what to deliver, I want to talk a little bit about YFC and what this community means to me.
+Before delving into my exploration on what to deliver, I want to talk a little bit about YFC and what this community means to me.
 
 YFC is a Catholic evangelistic ministry that spans all across the globe for Catholic youths. They bond together through fun, friendship, freedom and their faith. YFC has given me not just a community, but a family. I've dedicated over 5 years in service and volunteering for the church and my community, so I've made some of my strongest life-long friendships bonded through our love of creativity, music and our Catholic faith. 
 
