@@ -34,12 +34,10 @@ It's a powerful thing being bound together with a common faith, as we all strive
 A community binded by faith sharing their blessings to the world.
 
 ![LETTERS OF HOPE](https://scontent.fmel16-1.fna.fbcdn.net/v/t1.18169-9/1422463_10151700162160938_1593843796_n.jpg?_nc_cat=111&ccb=1-7&_nc_sid=cdbe9c&_nc_ohc=1fIsNfGuZbYAX_xnheC&tn=p37aI3uMAfKRvVC_&_nc_ht=scontent.fmel16-1.fna&oh=00_AT_A7bF8Fiy3_enGby8OFUQuEQZBSVTY_zvVvDDXdIlj8w&oe=637E497D)
-
 ![GP1](https://scontent.fmel16-1.fna.fbcdn.net/v/t39.30808-6/305813109_10158387864615938_8940990294565979164_n.jpg?_nc_cat=107&ccb=1-7&_nc_sid=0debeb&_nc_ohc=pxXQCeQ7fJcAX861YZ9&tn=p37aI3uMAfKRvVC_&_nc_ht=scontent.fmel16-1.fna&oh=00_AT_9QvDX8bSZ2s0l7KGiDhy-DThkoqzWJns_BLQ_9vCuNA&oe=635E59A0)
 ![GP2](https://scontent.fmel16-1.fna.fbcdn.net/v/t39.30808-6/308637290_465674055594368_9075788963521437457_n.jpg?_nc_cat=106&ccb=1-7&_nc_sid=0debeb&_nc_ohc=SvXtjWhag5wAX-pEjSs&tn=p37aI3uMAfKRvVC_&_nc_ht=scontent.fmel16-1.fna&oh=00_AT9GtxpEBT9LZTGtgcHExOcgCcQpXxNT5BfnBFH5OmXHGg&oe=635D0CE7)
 ![GP2](https://scontent.fmel16-1.fna.fbcdn.net/v/t31.18172-8/14425533_10153680220250938_823674413215205209_o.jpg?_nc_cat=105&ccb=1-7&_nc_sid=cdbe9c&_nc_ohc=g2N-r0FFZIQAX-QiiHo&_nc_ht=scontent.fmel16-1.fna&oh=00_AT__IgaSkxs7I7qFshGF5_72yalloCIghykJVrUrGE4KoA&oe=638032A8)
 [Video Snippet of the Community]({https://youtu.be/0eEfuaXY8So} "CFC-YFC Melbourne | Entry Camp | JESUS CHRIST GO!")
-
 
 I get a little emotional thinking about everything I've been through with the community, it means so much to me and my personal growth to make a project on them.
 
